@@ -10,3 +10,5 @@ The naturally, neutral, supersymmetrical, null, mathematical Universe architectu
 >Material: macro, real, massive, particle matter  Everything's material-spiritual being is in a state of dynamic equilibriums (infinity), whereby everything interacts with one another via their spiritual aspects.  
 
 Yuj, unifies everything in terms of the various equilibrium states of massive matter and energetic forces, or E ∞ mc² and F ∞ ma, colloquially known as the God equation.
+
+The Universe as dynamic hypercube fractals inside of a whole, torus-looking hypercube is displayed.
